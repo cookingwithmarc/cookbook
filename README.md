@@ -83,3 +83,28 @@ On a greased, heated griddle over medium heat (or pan on your stovetop), begin t
 Cook 1-2 minutes until they start to bubble around the edges, and flip. Cook for another 1-2 minutes. Remove from pan and serve.
 
 ---
+
+##James Nicholls
+
+###Chocolate Cake
+
+220g unsalted butter, softened
+220g (7 3/4oz) caster sugar
+200g self-raising flour
+4 large eggs
+1 tsp baking powder
+1 tsp vanilla extract
+3 tbsp cocoa powder
+2 tbsp milk
+small pinch salt
+
+####Instructions
+
+Preheat the oven to gas 4, 180°C, fan 160°C. Grease and line 2 x 20cm (8in) cake tins and set aside. In a large bowl, beat together the butter and sugar until pale. Add all the remaining sponge ingredients and beat together until well combined. Divide the mixture between the cake tins and smooth the tops. Bake in the oven for 20-25 minutes or until an inserted skewer comes out clean. Once baked, cool in the tins for 10 minutes, then remove from the tins and transfer to a cooling rack to cool completely.
+
+Meanwhile, make the ganache. Heat the double cream gently in a saucepan and break up the dark chocolate into cubes and place in a bowl. When the cream is just under the boil, pour it over the dark chocolate, ensuring it’s all covered, and allow to stand for 2-3 minutes. Whisk the ganache gently until it starts to combine and goes glossy. Allow to cool for 10 minutes, then place in the fridge for around 30 minutes, until it is a spreadable consistency.
+
+Once the sponges are cool, lay one with the topside down on a cake stand and spread with 1/3 of the ganache mixture. Top with the other sponge, topside up and push down slightly to secure it onto the filling. Ice the top of the cake with the remaining mixture by piling it in the centre and spreading it to the sides of the top sponge. Bring it down the sides gradually and smooth with a palette knife. Serve in large slices.
+
+
+---
